@@ -78,4 +78,3 @@ Thanks!
 Video content
     https://courses.wesbos.com/account/access/5f916eb024b5071fef483a70
 
-    
